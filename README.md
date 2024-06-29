@@ -1,0 +1,1 @@
+# Screenshot-Studio-1.11.25-Crack
